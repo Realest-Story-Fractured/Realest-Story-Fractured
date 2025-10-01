@@ -1,3 +1,4 @@
+<img src="fotor_1758851838799.jpg" width="300" />
 # 🥀 The Realest Story Ever Fractured  
 
 ---
